@@ -14,6 +14,7 @@ Developer: @RyanMoodGAMING#4307
 ## Socials 
 
 Discord: www.discord.gg/wJ9uGvc
+
 Twitter: www.twitter.com/PandorianMC
 
 ## Other
